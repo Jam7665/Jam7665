@@ -1,2 +1,2 @@
 # beta
-* the Readme is still in beta
+* hi my name is James or teslakitty1
