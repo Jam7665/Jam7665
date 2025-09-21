@@ -1,2 +1,2 @@
 # beta
-## hi my name is James, calico, or jam
+## hi my name is calico, or jam
